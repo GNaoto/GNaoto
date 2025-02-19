@@ -5,6 +5,7 @@
 - 🏃‍♂️‍➡️ Curiosidade: pratico atletismo desde os 3 anos de idade
 - 📫 Meu email: gnaoto1000@gmail.com
 - 📋 Meu linkedin: https://www.linkedin.com/in/gustavoyamamoto/
+
     
 ---
 
