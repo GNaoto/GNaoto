@@ -6,7 +6,6 @@
 - 📫 Meu email: gnaoto1000@gmail.com
 - 📋 Meu linkedin: https://www.linkedin.com/in/gustavoyamamoto/
     
-
 ---
 
 
